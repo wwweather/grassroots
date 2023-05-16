@@ -22,6 +22,6 @@ Caffeinated soda without sugar
 
 Some fashionable energetic drinks, or very classic
 
-Lemonades, smoothies, and other pure and still,
+Lemonades, smoothies, and other pure & still,
 
 So, and milk, and vegan milk, kefir

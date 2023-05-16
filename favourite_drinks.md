@@ -9,7 +9,7 @@ Whiskey Sour cocktail
 
 Red dry wine
 
-Delicious not-girlish beer
+Delicious not girlish beer
 
 Grappa
 
